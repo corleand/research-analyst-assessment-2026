@@ -28,7 +28,7 @@ Please return your slide deck and code to m4madmin@m4mgmt.org by 12am PST/ 3am E
 
 ## Questions?
 
-If you have questions about the assessment, please contact m4madmin@m4mgmt.org. Please note that this email is only monitored on weekdays.
+If you have questions about the assessment, please contact m4madmin@m4mgmt.org. This email is only monitored on weekdays.
 
 ---
 
